@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @takeshiyako2
 - 👀 I’m interested in raising childrens.
-- 🌱 I’m currently learning elementary English (again) ;)
-- 💞️ I’m looking to collaborate on ... (nothing now sorry)
-- 📫 How to reach me yako.takeshi+github@gmail.com
+- 🌱 I’m currently learning elementary English (Again) ;)
+- 💞️ I’m looking to collaborate on ... (Nothing now sorry)
+- 📫 How to reach me yako.takeshi+github@gmail.com (I don't like cheap deals. If you are so, I will block your email. Thank you.)
 
 <!---
 takeshiyako2/takeshiyako2 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
