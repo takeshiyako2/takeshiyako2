@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @takeshiyako2
 - 👀 I’m interested in raising childrens.
 - 🌱 I’m currently learning elementary English (again) :j
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... (nothing now sorry)
 - 📫 How to reach me yako.takeshi+github@gmail.com
 
 <!---
